@@ -1,10 +1,11 @@
 - 👋 Hi, I’m @daemyngactc
-- 👀 I’m interested in sex
-- 🌱 I’m currently learning gay sex 
-- 💞️ I’m looking to collaborate on orgy 
-- 📫 How to reach me my ass
-- 😄 Pronouns: fuck/me 
-- ⚡ Fun fact: i have aids
+- 👀 I’m interested codeing and makeing websites 
+- 🌱 I’m currently learning c++ and other code 
+- 💞️ I’m looking to collaborate on anything to the best of my abilty 
+- 📫 How to reach me mainly my discord Daemyn123
+- 😄 Pronouns: he/him 
+- ⚡ Fun fact: i like learning new things
+- 
 
 <sub>Hi</sub>
 
