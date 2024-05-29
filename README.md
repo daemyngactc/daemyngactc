@@ -5,7 +5,7 @@
 - 📫 How to reach me mainly my discord Daemyn123
 - 😄 Pronouns: he/him 
 - ⚡ Fun fact: i like learning new things
-- 
+  
 
 <sub>Hi</sub>
 
